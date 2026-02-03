@@ -1,1 +1,1 @@
-[阿部寛のホームページはこちら](https://abehiroshi.la.coocan.jp/)
+本家[阿部寛のホームページはこちら](https://abehiroshi.la.coocan.jp/)
