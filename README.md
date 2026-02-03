@@ -1,1 +1,1 @@
-[a](https://turbowarp.org/editor)
+[阿部寛のホームページはこちら](https://abehiroshi.la.coocan.jp/)
